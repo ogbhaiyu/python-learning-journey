@@ -12,8 +12,8 @@ To go from zero programming knowledge to being able to build and create useful t
 
 ### Follow My Progress
 You can follow my daily updates on:
-- **X/Twitter:** [Link to your Twitter profile]
-- **LinkedIn:** [Link to your LinkedIn profile]
+- **X/Twitter:** [(https://x.com/4K_Everyday)]
+- **LinkedIn:** [(https://www.linkedin.com/in/jyotiraditya-singh-og/)]
 
 ---
 
